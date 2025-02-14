@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning full stack and soft skill's
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
-- 😄 Pronouns: your determination when you have nothing your attitude when you have everything
+- 😄 Pronouns: GOAT
 - ⚡ Fun fact: Not interested in a formal education rather than interested in developing skills 
 
 <!---
